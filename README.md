@@ -1,1 +1,1 @@
-# PRISM---RITM
+# PRISM-RITM
